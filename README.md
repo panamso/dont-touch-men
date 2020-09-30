@@ -13,7 +13,7 @@ In the current COVID-19 pandemic, a few rules have been communicated to reduce i
 1. Keep physical distance to other humans.
 2. If you cough or sneeze, do it into your ellbow.
 3. **Don’t touch MEN: Mouth Eyes Nose**.
-4. Wash hands with soap.
+4. Wash hands with soap & use sanitizer frequently.
 5. Wash surfaces with soap water. 
 6. Wear face masks if you have them and if supply is guaranteed for health and frontline workers. Yes, they help.
 7. Protect elderly people and those wo are at risk.
